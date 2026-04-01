@@ -10,3 +10,4 @@ copilot kys
 ---
 title: AMOGUS
 ---
+0riew09i90iwi90i90ri90i0 tinyurl.com/solprep2026
